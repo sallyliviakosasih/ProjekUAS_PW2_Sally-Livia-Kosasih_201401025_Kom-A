@@ -1,0 +1,2 @@
+#ProjekUAS_PW2_Sally-Livia-Kosasih_201401025_Kom-A
+ ProjekUAS_PW2_Sally-Livia-Kosasih_201401025_Kom-A
